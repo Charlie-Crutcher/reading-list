@@ -6,4 +6,4 @@ This will eventually get more complex as I learn more about the coding language,
 
 I have factored reading and audio books into my daily routine and am currently reading 30 minutes MINIMUM a day, but I usually surpass this fairly easy goal.
 
-Any book recommendations are graciously appreciated!
+Any book recommendations are graciously appreciated! Also any tips and/or discussions for daily routines, workouts, philosophy and mindsets are welcome! :D
